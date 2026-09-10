@@ -1,0 +1,1 @@
+# Qlipboard-Full-Version
